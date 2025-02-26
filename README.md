@@ -1,3 +1,3 @@
 <div align="center">
-<img src="tumblr_9174ecffaaaba960f2aaf6d75eec1850_4c3b7f9f_100.gif"> 
-<img src="tumblr_757acf8dfadbeeeb97cc485a7fd71fe8_d2779b7e_75.gif"> 
+<img src="tumblr_116f56f870ae6c3d79177156430153f3_40e7b6f8_250.gif"> 
+<img src="tumblr_42c06ca77a7bdd4a9dbca2d677152c62_6af9d20f_250.gif"> 
